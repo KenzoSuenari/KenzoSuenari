@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KenzoSuenari
-- 👀 I’m interested in 
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in gaming 
+- 🌱 I’m currently learning sex
+- 💞️ I’m looking to collaborate on a stripper's house
 - 📫 How to reach me ...
 
 <!---
