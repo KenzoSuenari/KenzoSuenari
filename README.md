@@ -1,9 +1,10 @@
 # Sobre mim
 ---
 * Kenzo
-* 15 anos
+* 16 anos
 * TecPUC
 * Designer
-* Conhecimento em portugol
+* Conhecimento em portugol e python
+* Inglês avançado
 
 
